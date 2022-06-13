@@ -9,4 +9,4 @@ Front-end Developer.
 Enthusiast of problem solving & language learning.
 
 I am passionate about how it is possible, through programming, create unforgettable, incredible things that can change the world. And even though 
-to be able to do so is so difficult, it just makes such ability more extraordinary, don't you think? It doesn't scare me one bit!
+to be able to do so is so difficult, it just makes such ability more extraordinary, don't you think?
